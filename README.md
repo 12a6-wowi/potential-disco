@@ -1,2 +1,2 @@
 wow
-atoken tokennn NzUwMDI3NjI4Njg1Mjk1NzQ3.GRkMlG.wRpMrbTsXrxvHilDYsTlLWGPmo4xmx3vuMgIXk
+atoken tokennn .GPqNBL.1VL1mOe88mT3i74TesBxsoDsiQuvD163i7OMuo
